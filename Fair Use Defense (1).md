@@ -1,7 +1,7 @@
 
 
 
-#**Fair Use Defense: Vanic's "Skinny Love" Remix **
+#**Fair Use Defense: Vanic's "Skinny Love" Remix**
 
 ![enter image description here](https://lh3.googleusercontent.com/-Kxpb1uVjWRc/V-G6etQc9GI/AAAAAAAAALY/56VbEnpXY7EL-OYS-qDOuEzu5iAmin8MgCLcB/s0/images.jpg "Vanic")
 
