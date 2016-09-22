@@ -59,7 +59,8 @@ I argue that Vanic's remix of "Skinny Love" _**is**_ fair use, most notably due 
 
 To begin with some more abstract details details of the song that I find notable, yet lacking a direct fulfillment of the four terms of fair use:
 
-1. On each site, each artist cites a previous artist, ultimately crediting the original artist, Bon Iver. 
+1. On each site, each artist cites a previous artist, ultimately crediting the original artist, Bon Iver.  
+
 * For example, Vanic's "Skinny Love" YouTube page contains this, citing Birdy as the original artist:
 > Birdy - Skinny Love (Vanic Remix) 
 > http://smarturl.it/skinnylove
