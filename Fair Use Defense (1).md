@@ -61,14 +61,14 @@ To begin with some more abstract details details of the song that I find notable
 
 1. On each site, each artist cites a previous artist, ultimately crediting the original artist, Bon Iver.  
 
-* For example, Vanic's "Skinny Love" YouTube page contains this, citing Birdy as the original artist:
+  * For example, Vanic's "Skinny Love" YouTube page contains this, citing Birdy as the original artist:
 > Birdy - Skinny Love (Vanic Remix) 
 > http://smarturl.it/skinnylove
 https://www.facebook.com/BirdyMusic
 https://www.twitter.com/OfficialBirdy
 https://instagram.com/Birdyinstagram
 
-* And Birdy's "Skinny Love" YouTube info contains this, citing Bon Iver as the original artist:
+  * And Birdy's "Skinny Love" YouTube info contains this, citing Bon Iver as the original artist:
 >"Skinny Love" by Bon Iver performed by Birdy from her debut album
 
 2. The remix seems to have been reviewed and legitimized by both YouTube and SoundCloud, as the following licenses appear on their sites:
