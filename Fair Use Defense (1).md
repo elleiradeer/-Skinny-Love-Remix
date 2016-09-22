@@ -71,7 +71,7 @@ https://instagram.com/Birdyinstagram
 >"Skinny Love" by Bon Iver performed by Birdy from her debut album 
 
 2.  The remix seems to have been reviewed and legitimized by both YouTube and SoundCloud, as the following licenses appear on their sites:
-* YouTube: 
+* YouTube:
 
 | Category | Music |
 | --- | --- |
