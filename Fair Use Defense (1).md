@@ -72,9 +72,9 @@ https://instagram.com/Birdyinstagram
 
 2.  The remix seems to have been reviewed and legitimized by both YouTube and SoundCloud, as the following licenses appear on their sites:
 * YouTube:
-	|Category| Music|
+|Category| Music|
 |----------|--------|
-|Licence| Standard YouTube Licence
+|Licence| Standard YouTube Licence|
 
 * SoundCloud:
 >Skinny Love (Vanic Remix) by VANIC Official is licensed under a  Creative Commons License.
