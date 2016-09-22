@@ -5,13 +5,13 @@
 
 ![enter image description here](https://lh3.googleusercontent.com/-Kxpb1uVjWRc/V-G6etQc9GI/AAAAAAAAALY/56VbEnpXY7EL-OYS-qDOuEzu5iAmin8MgCLcB/s0/images.jpg "Vanic")
 
-
-**Arielle Reed**
-**Annette Vee**
-**Composing Digital Media**
-**September 2016**
+Arielle Reed
+Annette Vee
+Composing Digital Media
+September 2016
 
 ##**Introduction**
+
 ###An Accidental Encounter with Fair Use
 
 I scroll slowly through my phone's itunes library as my boyfriend Joe guides us down the highway in his grey Rav 4, the trees streaking fast past our windows. I roll my shoulders back, loosening the muscles which tightened during our earlier date at the Monroeville batting cages, and peer closer at my phone's screen. 
