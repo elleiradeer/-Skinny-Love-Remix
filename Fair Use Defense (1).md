@@ -6,8 +6,11 @@
 ![enter image description here](https://lh3.googleusercontent.com/-Kxpb1uVjWRc/V-G6etQc9GI/AAAAAAAAALY/56VbEnpXY7EL-OYS-qDOuEzu5iAmin8MgCLcB/s0/images.jpg "Vanic")
 
 Arielle Reed
+
 Annette Vee
+
 Composing Digital Media
+
 September 2016
 
 ##**Introduction**
