@@ -75,9 +75,9 @@ https://instagram.com/Birdyinstagram
 
   * YouTube:
 
-| Category | Music |
-| --- | --- |
-| Licence |Standard YouTube Licence |
+  | Category | Music |
+  | --- | --- |
+  | Licence |Standard YouTube Licence |
 
   * SoundCloud:
 
