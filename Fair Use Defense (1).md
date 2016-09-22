@@ -71,13 +71,13 @@ https://instagram.com/Birdyinstagram
 >"Skinny Love" by Bon Iver performed by Birdy from her debut album 
 
 2.  The remix seems to have been reviewed and legitimized by both YouTube and SoundCloud, as the following licenses appear on their sites:
-* YouTube:
+*YouTube:
 
 | Category | Music |
 | --- | --- |
 | Licence |Standard YouTube Licence |
 
-* SoundCloud:
+*SoundCloud:
 >Skinny Love (Vanic Remix) by VANIC Official is licensed under a  Creative Commons License.
 
 Ultimately, the legality of the song speaks for itself through its fulfillment of the four terms of Fair Use seen [here](https://www.law.cornell.edu/uscode/text/17/107). 
