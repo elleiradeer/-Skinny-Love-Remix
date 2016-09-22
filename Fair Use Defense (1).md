@@ -69,9 +69,9 @@ https://www.twitter.com/OfficialBirdy
 https://instagram.com/Birdyinstagram
 
 * And Birdy's "Skinny Love" YouTube info contains this, citing Bon Iver as the original artist:
->"Skinny Love" by Bon Iver performed by Birdy from her debut album 
+>"Skinny Love" by Bon Iver performed by Birdy from her debut album  
 
-2.The remix seems to have been reviewed and legitimized by both YouTube and SoundCloud, as the following licenses appear on their sites:
+2. The remix seems to have been reviewed and legitimized by both YouTube and SoundCloud, as the following licenses appear on their sites:
 
 * YouTube:
 
