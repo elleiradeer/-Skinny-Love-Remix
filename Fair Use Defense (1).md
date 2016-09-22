@@ -79,7 +79,6 @@ https://instagram.com/Birdyinstagram
 | --- | --- |
 | Licence |Standard YouTube Licence |
 
-
   * SoundCloud:
 
 >Skinny Love (Vanic Remix) by VANIC Official is licensed under a  Creative Commons License.
